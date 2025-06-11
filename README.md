@@ -1,1 +1,2 @@
-# .github
+# *The Art of Letting Go and Holding On to God: Embracing Trust*
+## *In a world where uncertainty often overshadows peace, Joanna Weaver’s Embracing Trust: The Art of Letting Go and Holding On to a Forever-Faithful God offers a refreshing journey through the heart of faith. This transformative book invites readers into a deeper understanding of trust—not as a passive emotion, but as an active, daily choice rooted in the character of God.* [More details…](https://spiritualkhazaana.com/the-art-of-letting-go-and-holding-on-to-god/)
